@@ -1,4 +1,4 @@
-
+Get the ultimate Gimp for macOS preset with Gimp for macOS professional Preset - smart objects and 3D rendering. Featuring smart objects and 3D rendering, it's the best choice for
 
 
 
